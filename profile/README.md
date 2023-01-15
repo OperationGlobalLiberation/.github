@@ -1,6 +1,6 @@
 # Operation: Global Liberation
 
-**The Goal:** To inspire cooperation, humanitarianism, and egalitarianism on a global scale, and encourage all people to take responsibility for the role they play in the World.
+**The Goal:** To inspire cooperation, humanitarianism, and egalitarianism on a global scale, and encourage all people to take responsibility for the role they play in the World, as a collective grassroots effort.
 
 This is a tall, daunting task. Many will ask, "how?" -- and, right now, the answer is simple: *We don't know, but if we don't try, we have already failed.* Many will seek to discredit the ideas and propositions, saying they are not intenible and will not bear fruit, to which we say, "Have you got a better idea that doesn't place blind faith in an against-all-odds gamble?"
 
